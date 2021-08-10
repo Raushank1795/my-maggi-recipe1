@@ -1,0 +1,1 @@
+ 1 maggi pack,onion, tomato,black papper powder,gingar,oil,salt.
